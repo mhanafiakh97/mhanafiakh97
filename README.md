@@ -3,7 +3,7 @@
 - 🎙️ I’m currently learning live streaming
 - 💞️ I’m looking to collaborate on digital marketing
 - 📫 How to reach me hanafialkhoiri@gmail.com
-- 😄 Pronouns: H-A-N-A-F-I
+- 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I like following trends, communicating, and creating content, I also like cats.
 
 <!---
